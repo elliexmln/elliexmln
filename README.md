@@ -1,4 +1,4 @@
-# In Memory of elliexmln
+# 🌿 In Memory of elliexmln
 
 This account belonged to **elliexmln** — a developer who created many past projects.
 
