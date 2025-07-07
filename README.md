@@ -1,7 +1,7 @@
-# 🌿 In Memory of elliexmln
+# 🌿 In the Loving Memory of elliexmln
 
 This account belonged to **elliexmln** — a developer who created many past projects.
 
-Their contributions remain as part of open-source found in Repository **elliexmln/PrizzLife**.
+Their contributions can be found in the Repository **elliexmln/PrizzLife**.
 
 🕊️
